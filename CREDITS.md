@@ -1,0 +1,1 @@
+Logo made by hati.royani on Vecteezy: https://www.vecteezy.com/vector-art/585767-soundwave-ilustration-logo-vector-icon-template
