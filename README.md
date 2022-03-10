@@ -1,3 +1,3 @@
 # Soundoff
 
-<img src="https://i.arxius.io/b207abc3.png"/>
+<img src="https://i.arxius.io/9f21437c.png"/>
